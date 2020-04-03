@@ -1,2 +1,2 @@
-For all unusual opinion 
- By Sobechukwu
+For all unusual opinion
+By Sobechukwu
