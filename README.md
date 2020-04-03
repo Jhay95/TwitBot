@@ -1,2 +1,1 @@
-# TwitBot
-For all  unusual opinion
+Sobechukwu
